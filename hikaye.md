@@ -8,3 +8,10 @@ melike muazı öldürmüş södhfjksdfhsl
 bunla gurur duyan melike bütün dünyaya açılabilmek için stef ile birlikte fransızca öğrenmiş.
 bonjouir! 
 helo bitchezzz 
+tiyatroyu özledim 
+ağağağağağağa
+jfıjoıwerjoıewjrweor
+oweıjrwoejrowrjwer
+rjoıwejrowerowerweo
+ayyyoooooooo
+nihhahahaha
