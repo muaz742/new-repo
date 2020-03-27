@@ -5,14 +5,9 @@ muaz adında biri varmış
 gülben adında da biri varmış.
 bunlar tiyatroda tanışmışlar.
 sonra gel zaman git zaman 
-melike muazı öldürmüş södhfjksdfhsl 
+melike muazı öldürmüş
 bunla gurur duyan melike bütün dünyaya açılabilmek için stef ile birlikte fransızca öğrenmiş.
-bonjouir! 
-helo bitchezzz 
-tiyatroyu özledim 
-ağağağağağağa
-jfıjoıwerjoıewjrweor
-oweıjrwoejrowrjwer
-rjoıwejrowerowerweo
-ayyyoooooooo
-nihhahahaha
+bonjour! 
+Muaz'ın öldüğünü öğrenen Gülben
+Melike ile bir olmuş 
+ve dünyadaki tüm dinozorları öldürmek için güçlerini birleştirmişler
